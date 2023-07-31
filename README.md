@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **emnplt.0698@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/furkan-polat-a89268251/](https://www.linkedin.com/in/furkan-polat-a89268251/)
+- 📄 Know about my experiences [[https://www.linkedin.com/in/furkan-polat-a89268251/](https://www.linkedin.com/in/furkan-emin-polat/)]([https://www.linkedin.com/in/furkan-polat-a89268251/](https://www.linkedin.com/in/furkan-emin-polat/))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
